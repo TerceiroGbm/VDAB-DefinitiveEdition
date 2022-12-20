@@ -1,6 +1,6 @@
 ## Basically a fan tweak of VS Dave And Bambi, with new content and more!
 ![notkadeenginelogo](https://media.discordapp.net/attachments/855503995119075328/907232690640654366/notkadeenginelogo.png?width=921&height=701)
-## And also a new Fanmod called Bambi's Purgatory with cool new songs, characters and a new story! (i shat my pants)
+## And also a new Fanmod called Bambi's Purgatory with cool new songs, characters and a new story!
 ![bambisburger](https://cdn.discordapp.com/attachments/890546329078620170/936394281428598867/images_2.jpg)
 PLACEHOLDER IMAGE TILL THE NEW LOGO LOL
 
